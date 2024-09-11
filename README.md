@@ -10,3 +10,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Nabila Naurotul Ummah
+* M.Riki Hidayat
